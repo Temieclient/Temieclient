@@ -1,0 +1,4 @@
+-Hello, its za me Temieclient
+-why am i named Temieclient? cuz i hav a company called Temieclientcorp
+-yes haha
+-how reach me: get dunked on kiddo  https://www.guilded.gg/u/asdwastaken
